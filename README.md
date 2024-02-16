@@ -1,2 +1,3 @@
 # belajar-kolaborasi
-belajar kolaboarasi di Dicoding itu
+belajar kolaboarasi di Dicoding itu seru
+
