@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-belajar kolaboarasi di Dicoding
+belajar kolaboarasi di Dicoding itu
